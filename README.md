@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Python project development
 
 
-- 📫 You can leave a message in my blog （https://www.yuque.com/dashboard/my_books）
+- 📫 You can  email me 1023495336@qq.com or leave a message in my blog （https://www.yuque.com/dashboard/my_books）
 
 
 
